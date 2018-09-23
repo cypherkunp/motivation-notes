@@ -1,9 +1,9 @@
 ### Date - 23/09/18
 
 1. [How To 100x Your Productivity In A World Of Distraction | Robin Sharma](https://www.youtube.com/watch?v=jMnx3_KfRjI)
-	- Focus is more important than the ever today. Focus Focus Focus.
+	- Focus is more important today than ever. Focus Focus Focus.
 	- Keep yourself away from any distractions.
-	- 90/90/1 rule: For the next 90 days, spend the first 90 mins of your work time to do the single most important opportunity to move the needle in your industry.  
+	- 90/90/1 rule: For the next 90 days, spend the first 90 mins of your work time to do the single most important thing that could move the needle in your industry.  
 	- Make your own Manlo Park. Be very hard to reach during the key times of the week. Go device free for few days a week.
 	- Choose your peer group really really well. Be around people who are doing what you want to do.
 	- Avoid distraction.
@@ -21,15 +21,15 @@
 ### Date - 22/09/18
 
 1. [The 5 Mentalities of Mastery | Robin Sharma](https://www.youtube.com/watch?v=UkhE_afMsDc)
-	a. The lunch-box Vs the executive/master mentality
+	1. The lunch-box Vs the executive/master mentality
 		- Be humble, work towards your goal, but don't get into the trap of assuming that you have mastered it all.
-	b. Rigorous Vs Superficial Mentality:
+	2. Rigorous Vs Superficial Mentality:
 		- Be a professional. Get a mentor and try to keep yourself involved in learning more about your craft. Go deep vs wide. Maintain discipline.
-	c. Leader Vs Victim:
+	3. Leader Vs Victim:
 		- Be a leader at work or become the victim. Get into the game. You can lead without a title. Bring on your a game.
-	d. Future Vs Past Mentality:
+	4. Future Vs Past Mentality:
 		- Get over your past and work for the future and live in the present. Let go of your past. You owe to yourself. Read about A players.
-	e. Helper Vs Taker mentality:
+	5. Helper Vs Taker mentality:
 		- Person who serves the most wins. Study Ted Turners life
 
 2. [How to Wake Up Early | Robin Sharma](https://www.youtube.com/watch?v=-xC_DbgpPAc)
